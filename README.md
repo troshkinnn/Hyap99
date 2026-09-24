@@ -1,3 +1,5 @@
+enthusiasts, crypto, analytics.
+
 contact with me — t.me/troshkinnn
 
 <!---
